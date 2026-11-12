@@ -1,3 +1,1 @@
-# WCRI-gang
-
-We are pretty cool 😎
+we are pretty cool :)
